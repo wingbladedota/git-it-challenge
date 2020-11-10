@@ -1,1 +1,1 @@
-We're living in an infernocracy.
+We're living in an infernocracy. Things are not the way they ought to be.
